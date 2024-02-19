@@ -1,3 +1,3 @@
 # Kokoa clone 2020 update
 
-Is CSS got better? 
+Did you said that CSS got better? YEEEEEESSSSSS
